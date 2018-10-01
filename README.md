@@ -1,1 +1,1 @@
-# Potato-Chipt
+# Potato-Chip
